@@ -24,4 +24,4 @@
 
 ### 🌐 Vamos nos conectar?
 * 📸 **Instagram:** https://www.instagram.com/hello._fanfan?igsh=MTE5Mm9yZWtkZXJsOA==
-* 📧 **E-mail:** seu_email@gmail.com
+* 📧 **E-mail:** diellostephannie@gmail.com
