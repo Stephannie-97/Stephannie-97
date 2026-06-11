@@ -9,7 +9,6 @@
 
 ### 🎨 Meus Hobbies e Paixões
 * 🎵 Ouvir música
-* 📖 Ler livros
 * 🖌️ Desenhar
 * 💃 Dançar
 
