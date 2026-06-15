@@ -1,4 +1,4 @@
-# Olá, eu sou a Stephannie! 👋
+# Olá, eu sou a Stephannie!
 
 ### 👩‍💻 Sobre Mim
 * 🎓 Tenho **16 anos** e sou estudante de informática no **JET**.
