@@ -16,8 +16,6 @@
 
 ### 🛠️ O que estou aprendendo no JET
 * 💻 Conceitos de Informática
-* 🌐 Como usar o GitHub e Git
-* 📝 Formatação de textos com Markdown
 
 ---
 
